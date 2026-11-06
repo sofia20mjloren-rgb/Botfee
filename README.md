@@ -1,0 +1,2 @@
+# Botfee
+Free
